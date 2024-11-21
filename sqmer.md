@@ -1,0 +1,1 @@
+aneh banget lagian
